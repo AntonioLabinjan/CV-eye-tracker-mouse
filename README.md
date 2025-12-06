@@ -1,1 +1,1 @@
-An update of first ever CV project
+An update of my first ever CV project
